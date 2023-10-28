@@ -16,3 +16,4 @@ I can do it here brother
 3. Sleep
 4. Reqeat
 
+Imagine the person who use our apps, and then just see a whole conversation here. XD
